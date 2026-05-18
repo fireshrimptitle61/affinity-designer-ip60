@@ -1,4 +1,4 @@
-# 
+# updated Affinity Photo para PC scripts é o melhor Affinity Photo para PC scripts com construtor de formas e edição de nós. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
